@@ -1,5 +1,13 @@
 # 日语学习
 
+
+
+日文油管博主
+
+1. [出口日语](https://www.youtube.com/c/deguchijapanese)
+2. [田中太郎的日文课](https://www.youtube.com/channel/UCE0Efg4gwZYaa1eVMcIhVDA)
+3. [森の日本語](https://www.youtube.com/c/nihongonomori2013)
+
 ### 新编日语（第一册）学习笔记
 
 - [网课链接](https://pan.baidu.com/s/1H0Jpl1p2JYXq5g16HzWy3g)｜提取码: s68q 
